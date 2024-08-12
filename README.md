@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ubaid-Attiq
+- 👀 I’m interested in All IT Skills
+- 🌱 I’m currently learning.
+- 💞️ I’m looking to collaborate in Anything.
+- 📫 How to reach me send any message to ubaidattiq6@gmail.com
